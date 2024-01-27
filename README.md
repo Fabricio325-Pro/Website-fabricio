@@ -1,4 +1,4 @@
-# Zarfala's Personal Website
+# Zarfala's Personal Website -> Please star 🌟
 
 Welcome to my personal website! 🚀
 
